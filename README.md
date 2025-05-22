@@ -1,0 +1,1 @@
+# praktika2025_1kurs
